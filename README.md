@@ -1,5 +1,4 @@
-<div align="center">
-  <a href="https://hits.sh/github.com/REVOLV1NG/"><img alt="Hits" src="https://hits.sh/github.com/REVOLV1NG.svg?label=Chaos&extraCount=356&color=7d39a5&labelColor=110e4d"/></a>
+<div align="center"<![Image](https://github.com/user-attachments/assets/e3c94857-d94a-4b48-adb2-7059d43f569a)</div>
   
 ![Image](https://github.com/user-attachments/assets/2f8ac9fa-bbe1-4082-9938-2c25c4c74d75)
 
