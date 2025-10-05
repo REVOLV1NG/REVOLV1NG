@@ -12,3 +12,4 @@
 ![Image](https://github.com/user-attachments/assets/4edd960b-aec6-4901-964c-027b96a47c0e)![Image](https://github.com/user-attachments/assets/aa6219ee-465d-4c7e-bee9-c8dd2d1aeb7c)
 
 *If you see someone who looks like me in Spanish they are copy my skin, that's not me!*
+*I don't support CARDJESTER btw, don't get me wrong*
