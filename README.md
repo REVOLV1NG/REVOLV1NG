@@ -16,3 +16,8 @@
 
 *I don't support CARDJESTER btw, don't get me wrong*[
 Just consider it as close friends]
+
+![Image](https://github.com/user-attachments/assets/b0a40ed3-607b-4a14-8bb3-5ad90dcd76cd)
+
+# Yes, the unethical person steals other people's ponies and doesn't admit fault
+*I don't mind leaving her face here*
