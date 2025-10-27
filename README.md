@@ -15,3 +15,4 @@
 - If you want to get to know me, I'm always available[don't ask me about work, family, outside relationships]
 
 _ don't drag me into stupid arguments and blame me when I have nothing to do with it.
+
