@@ -8,4 +8,10 @@
 
 # "I don't allow anyone to use my skin or style ideas without permission! If you do, please credit me."
 
+- I don't like sexjokes, if you are that type of person then stay away from me
 
+- I afk pony to draw, make animation, listen to music, sleep, sys etc..
+
+- If you want to get to know me, I'm always available[don't ask me about work, family, outside relationships]
+
+  Well if you know me then don't drag me into stupid arguments and blame me when I have nothing to do with it.
