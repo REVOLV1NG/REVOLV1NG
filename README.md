@@ -22,4 +22,4 @@
 
 _ don't drag me into stupid arguments and blame me when I have nothing to do with it.
 
-- my fav DTR Ship ; Spamtenna . kroelle . Susel . Elnino . 
+- my fav DTR Ship ; Spamtenna . kroelle . Susel . Elnino . Syberspade .
