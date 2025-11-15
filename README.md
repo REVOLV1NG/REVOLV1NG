@@ -23,4 +23,8 @@
 
 _ don't drag me into stupid arguments and blame me when I have nothing to do with it.
 
-- my fav DTR Ship ; Spamtenna . kroelle . Susel . Elnino . Syberspade .
+- I am not so rude and arrogant, sometimes i only text with friends at parties i rarely text in public
+
+- my fav DTR Ship ; Spamtenna . kroelle . Susel . Elnino . Syberspade . There are so many that I won't list them all.
+
+
