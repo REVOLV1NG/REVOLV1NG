@@ -9,9 +9,9 @@
 
 <img width="1280" height="224" alt="Image" src="https://github.com/user-attachments/assets/f2d8ead1-6b02-4064-9dd0-70cfa5383864" />
 
-<img width="1595" height="1836" alt="Image" src="https://github.com/user-attachments/assets/4fb6b49f-6260-47f0-95f2-753b7a5eb7f3" />
+<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/27e766c6-9b41-4d1a-bce7-596cb6834d3f" />
 
-
+THANK YOU @19-000 FOR DRAWING IT FOR ME GRGRGYAYAY
 
 # "I don't allow anyone to use my skin or style ideas without permission! If you do, please credit me."
 
