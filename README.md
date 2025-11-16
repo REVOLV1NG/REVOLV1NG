@@ -31,6 +31,8 @@ _ don't drag me into stupid arguments and blame me when I have nothing to do wit
 
 - oh yeah i hate insulting my favorite character.
 
+- My style is completely my own idea, I get very confused when someone says that I have the same style as them and get called a reference or style stealer :( . If it is the same then I am so sorry, I don't know what to do
+
 - my fav DTR Ship ; Spamtenna . kroelle . Susel . Elnino . Syberspade . There are so many that I won't list them all.
 
 
