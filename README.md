@@ -25,6 +25,12 @@ _ don't drag me into stupid arguments and blame me when I have nothing to do wit
 
 - I am not so rude and arrogant, sometimes i only text with friends at parties i rarely text in public
 
+- I don't participate in many fandoms, if I do, I'm only slightly interested.
+
+- my personality is a straightforward person,I hate to compare myself to the people I have my eyes on.Excessive or offensive talk makes me uncomfortable
+
+- oh yeah i hate insulting my favorite character.
+
 - my fav DTR Ship ; Spamtenna . kroelle . Susel . Elnino . Syberspade . There are so many that I won't list them all.
 
 
