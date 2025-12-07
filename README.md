@@ -11,7 +11,7 @@
 
 <img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/27e766c6-9b41-4d1a-bce7-596cb6834d3f" />
 
-THANK YOU @19-000 FOR DRAWING IT FOR ME GRGRGYAYAY
+THANK YOU @HOTBERD FOR DRAWING IT FOR ME GRGRGYAYAY
 
 # "I don't allow anyone to use my skin or style ideas without permission! If you do, please credit me."
 
