@@ -8,7 +8,7 @@
 
 ![Image](https://github.com/user-attachments/assets/ed2bf96c-9ec4-46b2-ac56-8f887005657a)
 
-# "I don't allow anyone to use my skin or style ideas without permission! If you do, please credit me."
+# ![Image](https://github.com/user-attachments/assets/88d0b65d-bccb-4601-924d-07cf8fe9ce21)  "I don't allow anyone to use my skin or style ideas without permission! If you do, please credit me."
 
 ![Image](https://github.com/user-attachments/assets/84a76428-7960-4a47-9ec7-062c3945708e)
 
