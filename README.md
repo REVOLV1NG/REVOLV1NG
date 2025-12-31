@@ -10,6 +10,8 @@
 
 # "I don't allow anyone to use my skin or style ideas without permission! If you do, please credit me."
 
+![Image](https://github.com/user-attachments/assets/84a76428-7960-4a47-9ec7-062c3945708e)
+
 - ![Image](https://github.com/user-attachments/assets/e7b0ea1a-375f-472c-9795-f9071bc0897a) I don't like sexjokes, if you are that type of person then stay away from me
 
 - ![Image](https://github.com/user-attachments/assets/e7b0ea1a-375f-472c-9795-f9071bc0897a) I afk pony to draw, make animation, listen to music, sleep, sys etc..
