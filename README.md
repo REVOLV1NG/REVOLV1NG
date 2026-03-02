@@ -12,17 +12,9 @@
 
 ![Image](https://github.com/user-attachments/assets/84a76428-7960-4a47-9ec7-062c3945708e)
 
-- ![Image](https://github.com/user-attachments/assets/e7b0ea1a-375f-472c-9795-f9071bc0897a) I don't like sexjokes, if you are that type of person then stay away from me
+- Check link 4more Inf.
 
-- ![Image](https://github.com/user-attachments/assets/e7b0ea1a-375f-472c-9795-f9071bc0897a) I afk pony to draw, make animation, listen to music, sleep, sys etc..
-
-- ![Image](https://github.com/user-attachments/assets/d2f54687-7725-481c-99b4-86b448e6dc79) don't ask me about work, family, outside relationships]
-
-_ ![Image](https://github.com/user-attachments/assets/d2f54687-7725-481c-99b4-86b448e6dc79) don't drag me into stupid arguments and blame me when I have nothing to do with it.
-
-- ![Image](https://github.com/user-attachments/assets/e7b0ea1a-375f-472c-9795-f9071bc0897a) I am not so rude and arrogant, sometimes i only text with friends at parties i rarely text in public
-
-- ![Image](https://github.com/user-attachments/assets/d2f54687-7725-481c-99b4-86b448e6dc79) I don't participate in many fandoms, if I do, I'm only slightly interested.
+- ![Image](https://github.com/user-attachments/assets/d2f54687-7725-481c-99b4-86b448e6dc79) don't drag me into stupid arguments and blame me when I have nothing to do with it
 
 - ![Image](https://github.com/user-attachments/assets/e7b0ea1a-375f-472c-9795-f9071bc0897a) my personality is a straightforward person,I hate to compare myself to the people I have my eyes on.Excessive or offensive talk makes me uncomfortable
 
