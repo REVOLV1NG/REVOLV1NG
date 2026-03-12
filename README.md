@@ -9,7 +9,7 @@
 
 # ![Image](https://github.com/user-attachments/assets/88d0b65d-bccb-4601-924d-07cf8fe9ce21)  "I don't allow anyone to use my skin or style ideas without permission! If you do, please credit me."
 
-<img width="1280" height="107" alt="Image" src="https://github.com/user-attachments/assets/8d33eaca-083b-4cb3-8110-fa5137ff5312" />
+![Image](https://github.com/user-attachments/assets/8cce11f5-cf07-415e-99bc-7ad7c0442cb2)
 
 - Check link 4more Inf.
 
@@ -20,6 +20,3 @@
 - ![Image](https://github.com/user-attachments/assets/d2f54687-7725-481c-99b4-86b448e6dc79) yeah i hate insulting my favorite character.
 - My style is completely my own idea, I get very confused when someone says that I have the same style as them and get called a reference or style stealer?. If it is the same then I am so sorry, I don't know what to do
 
-<img width="250" height="247" alt="Image" src="https://github.com/user-attachments/assets/42caeb70-d3fb-4d21-b9be-7c037439ebcd" />
-
-<img width="1280" height="429" alt="Image" src="https://github.com/user-attachments/assets/19ea8551-0229-463c-8379-e6241041da4f" />
