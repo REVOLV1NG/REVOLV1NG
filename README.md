@@ -1,11 +1,10 @@
 <div align="center"<
 
-![Image](https://github.com/user-attachments/assets/08cd4386-bbdf-4d1e-ba89-a40c6352fd86)
   
 # 
 
 
-![Image](https://github.com/user-attachments/assets/ed2bf96c-9ec4-46b2-ac56-8f887005657a)
+![Image](https://github.com/user-attachments/assets/eb02f9e6-c96e-41d7-b71d-9d6601a7bbdf)
 
 # ![Image](https://github.com/user-attachments/assets/88d0b65d-bccb-4601-924d-07cf8fe9ce21)  "I don't allow anyone to use my skin or style ideas without permission! If you do, please credit me."
 
