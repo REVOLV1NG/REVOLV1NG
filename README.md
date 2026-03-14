@@ -4,11 +4,11 @@
 # 
 
 
-![Image](https://github.com/user-attachments/assets/eb02f9e6-c96e-41d7-b71d-9d6601a7bbdf)
+![Image](https://github.com/user-attachments/assets/0191910f-52af-43a6-8993-b8bffa4a5e74)
 
 # ![Image](https://github.com/user-attachments/assets/88d0b65d-bccb-4601-924d-07cf8fe9ce21)  "I don't allow anyone to use my skin or style ideas without permission! If you do, please credit me."
 
-![Image](https://github.com/user-attachments/assets/8cce11f5-cf07-415e-99bc-7ad7c0442cb2)
+![Image](https://github.com/user-attachments/assets/99ab95a9-d6f9-433a-8f96-bcd6beb23134)
 
 - Check link 4more Inf.
 
