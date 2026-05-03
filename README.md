@@ -5,7 +5,9 @@
 
 # ![Image](https://github.com/user-attachments/assets/88d0b65d-bccb-4601-924d-07cf8fe9ce21)  "I don't allow anyone to use my skin or style ideas without permission! If you do, please credit me."
 
-![Image](https://github.com/user-attachments/assets/99ab95a9-d6f9-433a-8f96-bcd6beb23134)
+<img width="400" height="45" alt="Image" src="https://github.com/user-attachments/assets/4a98bae6-faeb-4413-bd24-8586af126fd8" />
+
+<img width="735" height="119" alt="Image" src="https://github.com/user-attachments/assets/982a1408-8ed7-4e43-a926-4515b62b1e90" />
 
 - Check link 4more Inf.
 
