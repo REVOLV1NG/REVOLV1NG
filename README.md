@@ -18,3 +18,7 @@
 - ![Image](https://github.com/user-attachments/assets/d2f54687-7725-481c-99b4-86b448e6dc79) yeah i hate insulting my favorite character.
 - My style is completely my own idea, I get very confused when someone says that I have the same style as them and get called a reference or style stealer?. If it is the same then I am so sorry, I don't know what to do
 
+<img width="250" height="250" alt="Image" src="https://github.com/user-attachments/assets/dffe76e0-716c-4c57-8d28-f33fd8787be0" />
+
+<img width="250" height="250" alt="Image" src="https://github.com/user-attachments/assets/a86aab04-6d57-4d82-b94c-aff200cf10ad" />
+
