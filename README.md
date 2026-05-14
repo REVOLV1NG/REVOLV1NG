@@ -22,10 +22,14 @@
   <summary>ponies</summary>
 - My style is completely my own idea, I get very confused when someone says that I have the same style as them and get called a reference or style stealer?. If it is the same then I am so sorry,i don't know what to do.</details>
 
-<img width="1280" height="77" alt="Image" src="https://github.com/user-attachments/assets/3b400aec-1a27-4619-bc45-c83e2af40f58" />
+# Blacklist
 
-<img width="250" height="250" alt="Image" src="https://github.com/user-attachments/assets/dffe76e0-716c-4c57-8d28-f33fd8787be0" />
-<img width="250" height="250" alt="Image" src="https://github.com/user-attachments/assets/a86aab04-6d57-4d82-b94c-aff200cf10ad" />
+<img width="720" height="293" alt="Image" src="https://github.com/user-attachments/assets/7fd305ba-8ac1-4953-a01d-6597262c513c" />
 
-<img width="400" height="45" alt="Image" src="https://github.com/user-attachments/assets/4a98bae6-faeb-4413-bd24-8586af126fd8" />
-
+<details>
+  <summary>info</summary> This account has two onwner (?)
+- We were old friends two years ago, but we stopped being friends due to a conflict.
+- Always lying to avoid responsibility.
+- Inventing stories that seem too logical just to get MORE attention.
+- rarely or never admit their mistakes
+- arrogance was solely to satisfy his ego. 
