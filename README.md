@@ -39,3 +39,6 @@
 
 - Lying about being in life-threatening situations such as a traffic accident or being assassinated at home (¿) And then he told himself he was playing games while having surgery, as if nothing had happened, And bro still had the time to text his girlfriend that he still loved her
 
+- [x] admitting mistakes the first time
+- [ ]  apologize after the conflict.
+- [ ] apologized after lying about being assassinated and illogical traffic accident
