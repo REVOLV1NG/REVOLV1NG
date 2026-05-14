@@ -27,9 +27,14 @@
 <img width="720" height="293" alt="Image" src="https://github.com/user-attachments/assets/7fd305ba-8ac1-4953-a01d-6597262c513c" />
 
 <details>
-  <summary>info</summary> This account has two onwner (?)
-- We were old friends two years ago, but we stopped being friends due to a conflict.
-- Always lying to avoid responsibility.
+  <summary>info</summary> This account has two onwner (?) We were old friends two years ago, but we stopped being friends due to a conflict.
+
+  - Always lying to avoid responsibility , Find some nonsensical excuses to brush the matter aside
+
 - Inventing stories that seem too logical just to get MORE attention.
-- rarely or never admit their mistakes
-- arrogance was solely to satisfy his ego. 
+
+- rarely or never admit their mistakes,Instead, there were sarcastic and mocking remarks.
+
+- arrogance was solely to satisfy his ego.
+
+- 
