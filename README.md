@@ -41,4 +41,4 @@
 
 - [x] admitting mistakes the first time
 - [ ]  apologize after the conflict.
-- [ ] apologized after lying about being assassinated and illogical traffic accident
+- [ ] apologized after lying about being assassinated and illogical traffic accident</details>
