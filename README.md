@@ -31,7 +31,7 @@
 
   - Always lying to avoid responsibility , Find some nonsensical excuses to brush the matter aside
 
-- Inventing stories that seem too logical just to get MORE attention.
+- Inventing stories that too logical just to get MORE attention.
 
 - rarely or never admit their mistakes,Instead were sarcastic and mocking remarks.
 
