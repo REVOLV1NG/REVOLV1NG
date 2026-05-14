@@ -20,21 +20,22 @@
   yeah i hate insulting my favorite character</details>
 <details>
   <summary>ponies</summary>
-- My style is completely my own idea, I get very confused when someone says that I have the same style as them and get called a reference or style stealer?. If it is the same then I am so sorry,i don't know what to do.</details>
+- My style is completely my own idea, I get very confused when someone says that I have the same style as them and get called a reference or style stealer?. If it is the same then I am so sorry,i don't know what to do.</details> </p>
 
 # Blacklist
 
 <img width="720" height="293" alt="Image" src="https://github.com/user-attachments/assets/7fd305ba-8ac1-4953-a01d-6597262c513c" />
 
 <details>
-  <summary>info</summary> This account has two onwner (?) We were old friends two years ago, but we stopped being friends due to a conflict.
+  <summary>info</summary> This account has two onwner (?)
 
   - Always lying to avoid responsibility , Find some nonsensical excuses to brush the matter aside
 
 - Inventing stories that seem too logical just to get MORE attention.
 
-- rarely or never admit their mistakes,Instead, there were sarcastic and mocking remarks.
+- rarely or never admit their mistakes,Instead were sarcastic and mocking remarks.
 
 - arrogance was solely to satisfy his ego.
 
-- 
+- Lying about being in life-threatening situations such as a traffic accident or being assassinated at home (¿) And then he told himself he was playing games while having surgery, as if nothing had happened, And bro still had the time to text his girlfriend that he still loved her
+
