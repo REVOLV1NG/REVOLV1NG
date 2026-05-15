@@ -50,11 +50,11 @@
 <details>
   <summary>info</summary> https://github.com/J1NIES3NJI
 
-- several reasons regarding the trust issue & Over-reliance on facts and believing lies makes the whole group uncomfortable.
+- several reasons regarding the trust issue & and always believing lies makes the whole group uncomfortable.
 
 - rarely pay attention to the advice that has been repeated many times.
 
 - listened for a bit and just replied that "i don't know"
   
-    
+- gently reminded and still trusted the liar a little, even though It admitted the initial disagreement sounded illogical. 
   
