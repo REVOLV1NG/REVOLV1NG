@@ -61,5 +61,12 @@ As mentioned above,get assassinated at home.
 
 - listened for a bit and just replied that "i don't know"
   
-- gently reminded and still trusted the liar a little, even though It admitted the initial disagreement sounded illogical. 
+- gently reminded and still trusted the liar a little, even though It admitted the initial disagreement sounded illogical.</details>
+
+<details>
+  <summary>Dni</summary> 
+- https://github.com/Shincyu
+  
+- https://github.com/rubycoon
+    
   
