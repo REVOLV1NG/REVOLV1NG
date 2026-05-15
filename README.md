@@ -7,8 +7,6 @@
 # ![Image](https://github.com/user-attachments/assets/88d0b65d-bccb-4601-924d-07cf8fe9ce21)  "I don't allow anyone to use my skin or style ideas without permission! If you do, please credit me."
 
 
-<img width="735" height="119" alt="Image" src="https://github.com/user-attachments/assets/982a1408-8ed7-4e43-a926-4515b62b1e90" />
-
 <img width="661" height="648" alt="Image" src="https://github.com/user-attachments/assets/13d1ad58-f108-445c-8c6c-6094ba025dc0" />
 
 - Check link 4more Inf.
@@ -37,7 +35,14 @@
 
 - arrogance was solely to satisfy his ego.
 
-- Lying about being in life-threatening situations such as a traffic accident or being assassinated at home (¿) And then he told himself he was playing games while having surgery, as if nothing had happened, And bro still had the time to text his girlfriend that he still loved her
+- had a major conflict three members of the group, He apologized but still went around badmouthing people behind their backs to those
+
+- Lying about being in life-threatening situations such as a traffic accident with a low chance of survival ( he said) and get assassinated at home (¿) then said he was playing games while having surgery at hospital after being involved in a traffic accident as if nothing had happened, And bro still had the time to text his girlfriend that he still loved her
+
+- 8 consecutive lies ( have is evidence ) 1. lied saying he was American ( The truth is Vietnamese ) 2.say his Vietnamese-American sister doesn't understand a single Vie word, but still write the letters in the ponies' Vietnamese name as if it were perfectly normal 3.As mentioned above, play the game as usual 4.He claimed to have been stabbed 29 times and was d*ad and then say that he is still alive.
+
+- 5. setlove nickname with his girlfriend despite having just been assassinated. 6. asked to get acquainted (old story), but he said he couldn't move and therefore couldn't come down to sit with group ( And then he went around joking around with his friends as if nothing had happened ) 7. J was assassinated in hospital but his sister didn't stand guard (?) also his sister said she was living with J all the times, she just said she wasn't there (?) 8. 
+As mentioned above,get assassinated at home.
 
 - [x] admitting mistakes the first time
 - [ ]  apologize after the conflict.
