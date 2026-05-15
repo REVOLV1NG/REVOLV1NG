@@ -41,7 +41,7 @@
 
 - 8 consecutive lies ( have is evidence ) 1. lied saying he was American ( The truth is Vietnamese ) 2.say his Vietnamese-American sister doesn't understand a single Vie word, but still write the letters in the ponies' Vietnamese name as if it were perfectly normal 3.As mentioned above, play the game as usual 4.He claimed to have been stabbed 29 times and was d*ad and then say that he is still alive.
 
-- 5. setlove nickname with his girlfriend despite having just been assassinated. 6. asked to get acquainted (old story), but he said he couldn't move and therefore couldn't come down to sit with group ( And then he went around joking around with his friends as if nothing had happened ) 7. J was assassinated in hospital but his sister didn't stand guard (?) also his sister said she was living with J all the times, she just said she wasn't there (?) 8. 
+- 5. setlove nickname with his girlfriend despite having just been assassinated. 6. asked to get acquainted (old story), but he said he couldn't move and therefore couldn't come down to sit with group ( And then he went around joking around with his friends as if nothing had happened ) 7. J was assassinated in hospital but his sister didn't stand guard (?) but his sister said she was living with J at that time,and then said she not there (?) 8. 
 As mentioned above,get assassinated at home.
 
 - [x] admitting mistakes the first time
