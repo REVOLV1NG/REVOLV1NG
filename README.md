@@ -42,3 +42,9 @@
 - [x] admitting mistakes the first time
 - [ ]  apologize after the conflict.
 - [ ] apologized after lying about being assassinated and illogical traffic accident</details>
+
+<img width="720" height="243" alt="Image" src="https://github.com/user-attachments/assets/acae23bc-0870-4a30-8452-c623cfb705c6" />
+<details>
+  <summary>info</summary>
+    
+  
