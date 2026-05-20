@@ -4,11 +4,6 @@
 # 
 <img width="400" height="45" alt="Image" src="https://github.com/user-attachments/assets/4a98bae6-faeb-4413-bd24-8586af126fd8" />
 
-# ![Image](https://github.com/user-attachments/assets/88d0b65d-bccb-4601-924d-07cf8fe9ce21)  "I don't allow anyone to use my skin or style ideas without permission! If you do, please credit me."
-
-
-<img width="661" height="648" alt="Image" src="https://github.com/user-attachments/assets/13d1ad58-f108-445c-8c6c-6094ba025dc0" />
-
 - Check link 4more Inf.
 
 <details>
