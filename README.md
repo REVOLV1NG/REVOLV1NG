@@ -15,6 +15,8 @@
   <summary>ponies</summary>
 - My style is completely my own idea, I get very confused when someone says that I have the same style as them and get called a reference or style stealer?. If it is the same then I am so sorry,i don't know what to do.</details> </p>
 
+<img width="250" height="266" alt="Image" src="https://github.com/user-attachments/assets/bb07779f-6a4a-4693-a3c9-99c163a394a0" />
+
 # Blacklist
 
 <img width="720" height="293" alt="Image" src="https://github.com/user-attachments/assets/7fd305ba-8ac1-4953-a01d-6597262c513c" />
