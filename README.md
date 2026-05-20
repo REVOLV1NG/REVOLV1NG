@@ -2,7 +2,6 @@
 
   
 # 
-<img width="389" height="474" alt="Image" src="https://github.com/user-attachments/assets/988b0df5-830f-47e6-be36-fcb02887f021" />
 
 - Check link 4more Inf.
 
