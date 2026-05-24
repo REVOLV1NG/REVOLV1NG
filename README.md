@@ -23,7 +23,7 @@ cr : @souukai
 
 # Blacklist
 
-<img width="720" height="293" alt="Image" src="https://github.com/user-attachments/assets/7fd305ba-8ac1-4953-a01d-6597262c513c" />
+<img width="720" height="627" alt="Image" src="https://github.com/user-attachments/assets/a077395b-2714-4a74-926a-d708c93c365f" />
 
 <details>
   <summary>info</summary> This account has two onwner (?)
