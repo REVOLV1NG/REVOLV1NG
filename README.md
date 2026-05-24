@@ -2,6 +2,7 @@
 
   
 # 
+<img width="1280" height="401" alt="Image" src="https://github.com/user-attachments/assets/f0b65a26-df57-4bf7-a5f6-5237d6c5120c" />
 
 - Check link 4more Inf.
 
@@ -14,7 +15,11 @@
   <summary>ponies</summary>
 - My style is completely my own idea, I get very confused when someone says that I have the same style as them and get called a reference or style stealer?. If it is the same then I am so sorry,i don't know what to do.</details> </p>
 
-<img width="250" height="266" alt="Image" src="https://github.com/user-attachments/assets/bb07779f-6a4a-4693-a3c9-99c163a394a0" />
+<img width="1280" height="401" alt="Image" src="https://github.com/user-attachments/assets/f0b65a26-df57-4bf7-a5f6-5237d6c5120c" />
+
+<img width="1280" height="563" alt="Image" src="https://github.com/user-attachments/assets/212d4924-559b-4e90-90cf-2d8a23c59613" />
+
+cr : @souukai
 
 # Blacklist
 
