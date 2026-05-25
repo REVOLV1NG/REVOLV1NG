@@ -2,7 +2,7 @@
 
   
 # 
-<img width="1280" height="401" alt="Image" src="https://github.com/user-attachments/assets/f0b65a26-df57-4bf7-a5f6-5237d6c5120c" />
+<img width="2500" height="1172" alt="Image" src="https://github.com/user-attachments/assets/a08c3f3d-a724-4278-92f1-15bb360330fa" />
 
 - Check link 4more Inf.
 
@@ -15,11 +15,11 @@
   <summary>ponies</summary>
 - My style is completely my own idea, I get very confused when someone says that I have the same style as them and get called a reference or style stealer?. If it is the same then I am so sorry,i don't know what to do.</details> </p>
 
-<img width="1280" height="401" alt="Image" src="https://github.com/user-attachments/assets/f0b65a26-df57-4bf7-a5f6-5237d6c5120c" />
 
-<img width="1280" height="563" alt="Image" src="https://github.com/user-attachments/assets/212d4924-559b-4e90-90cf-2d8a23c59613" />
 
-cr : @souukai
+
+
+<img width="2500" height="798" alt="Image" src="https://github.com/user-attachments/assets/cea0fea6-a584-4d62-9edc-0676fe65897f" />
 
 # Blacklist
 
@@ -50,4 +50,4 @@ As mentioned above,get assassinated at home.
 - [ ] apologized after lying about being assassinated and illogical traffic accident</details>
 
     
-  
+<img width="2500" height="1172" alt="Image" src="https://github.com/user-attachments/assets/23a35eca-6c60-4826-9739-cd879c148511" />
