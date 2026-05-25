@@ -23,7 +23,7 @@ cr : @souukai
 
 # Blacklist
 
-<img width="720" height="627" alt="Image" src="https://github.com/user-attachments/assets/a077395b-2714-4a74-926a-d708c93c365f" />
+@cupcake-bug ( tag in bio )
 
 <details>
   <summary>info</summary> This account has two onwner (?)
