@@ -4,7 +4,7 @@
 
 
 # 
-<img width="2500" height="1172" alt="Image" src="https://github.com/user-attachments/assets/a08c3f3d-a724-4278-92f1-15bb360330fa" />
+<img width="2048" height="919" alt="Image" src="https://github.com/user-attachments/assets/b4154d21-b34d-4cd4-a419-e4efdc3e0b71" />
 
 - Check link 4more Inf.
 
@@ -21,7 +21,7 @@
 
 
 
-<img width="2500" height="798" alt="Image" src="https://github.com/user-attachments/assets/cea0fea6-a584-4d62-9edc-0676fe65897f" />
+<img width="2048" height="919" alt="Image" src="https://github.com/user-attachments/assets/1cfe7851-aeda-49f2-bf5f-1407dfa72afa" />
 
 # Blacklist
 
@@ -52,4 +52,4 @@ As mentioned above,get assassinated at home.
 - [ ] apologized after lying about being assassinated and illogical traffic accident</details>
 
     
-<img width="2500" height="1172" alt="Image" src="https://github.com/user-attachments/assets/23a35eca-6c60-4826-9739-cd879c148511" />
+<img width="2048" height="919" alt="Image" src="https://github.com/user-attachments/assets/b4154d21-b34d-4cd4-a419-e4efdc3e0b71" />
