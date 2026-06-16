@@ -3,10 +3,10 @@
 [![](https://files.catbox.moe/pxvxu0.png)](https://revolv1ng.atabook.org/)
 
 
-# 
+
 <img width="2048" height="919" alt="Image" src="https://github.com/user-attachments/assets/b4154d21-b34d-4cd4-a419-e4efdc3e0b71" />
 
-- Check link 4more Inf.
+Check link 4more Inf.
 
 <details>
   <summary>hated</summary>don't drag me into stupid arguments and blame me when I have nothing to do with it
